@@ -1,1 +1,1 @@
-# ISR
+Lo que hice fue en base al Centro Cuesta Nacional (CCN) en donde yo colocaba el 15 porciento de ISR y utilicé su cantidad de bonificaciòn el cual es entre $1,000 y $200,000 y con eso pude calcular todo lo demás que se pedía.
